@@ -10,8 +10,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=axy5w50rrg44qmscakgbkierm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=050505&interchange=false&profanity=false&hide_remaster=false&bar_color=12208c&bar_color_cover=false">
   </a>
 </p>
-<p align="center"></p>
-<p align="center"></p>
-<p align="center"></p>
-<p align="center"></p>
-<p align="center"></p>
+<p align="center">Talk to me about PMoon media especially lobcorp i love . lobcorp.. Reverse:1999, rezero, linkclick, & many more stuff i cant remember  but these are def what im fixated on as im typing this. </p>
+<p align="center">  <a href="https://rentry.co/chesed">rentry1</a> ✦ <a href="https://rentry.co/sn8gharpoon">rentry2</a> ✦ <<a href="https://rentry.co/llhmgesellschaft"> llhm </a>3  ✦      </p>
