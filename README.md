@@ -1,16 +1,17 @@
-## Hi there 👋
+<p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/113932083_addkNFg0t9v45Wu.png" width="300"></p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=NANITESACID&color=805d1a&style=flat-square&label=✦&base=5134> ✦ <a href="https://toyhou.se/itzchat">art by itzchat</a> </p>
+<p align="center">Im Merel, or Nanite! previously known as <i>nakyo, please dont call me by this name anymore</i>. Mainly offtab, so whisper to interact as i'll most likely miss it if you say anything to me in public. </p>
+<p align="center">Mainly at the PMoon area, corner right (4 benches) in the map, or at docks time to time. C+H freely anytime udont need to ask !! I also hide & block freely, if I see any skins or anything said that makes me uncomfortable / is overall wrong, you will be hidden. </p>
 
-<!--
-**NANITESACID/NANITESACID** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=axy5w50rrg44qmscakgbkierm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=050505&interchange=false&profanity=false&hide_remaster=false&bar_color=12208c&bar_color_cover=false">
+  </a>
+</p>
+<p align="center"></p>
+<p align="center"></p>
+<p align="center"></p>
+<p align="center"></p>
+<p align="center"></p>
