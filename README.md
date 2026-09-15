@@ -1,5 +1,5 @@
 <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/113932083_addkNFg0t9v45Wu.png" width="300"></p>
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=NANITESACID&color=805d1a&style=flat-square&label=✦&base=5134> ✦ <a href="https://toyhou.se/itzchat">art by itzchat</a> </p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=NANITESACID&color=805d1a&style=flat-square&label=✦&base=8942> ✦ <a href="https://toyhou.se/itzchat">art by itzchat</a> </p>
 <p align="center">Im Merel, or Nanite! previously known as <i>nakyo, please dont call me by this name anymore</i>. Mainly offtab, so whisper to interact as i'll most likely miss it if you say anything to me in public. </p>
 <p align="center">Mainly at the PMoon area, corner right (4 benches) in the map, or at docks time to time. C+H freely anytime udont need to ask !! I also hide & block freely, if I see any skins or anything said that makes me uncomfortable / is overall wrong, you will be hidden. </p>
 
