@@ -12,3 +12,6 @@
 </p>
 <p align="center">Talk to me about PMoon media especially lobcorp i love . lobcorp.. Reverse:1999, rezero, linkclick, & many more stuff i cant remember  but these are def what im fixated on as im typing this. </p>
 <p align="center">  <a href="https://rentry.co/chesed">rentry1</a> ✦ <a href="https://rentry.co/sn8gharpoon">rentry2</a> ✦ <<a href="https://rentry.co/llhmgesellschaft"> llhm </a>3  ✦      </p>
+<p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/ishyqu.png" width="300"></p>
+
+<p align="center"> <a href="https://toyhou.se/RemaerDayArc">art by RemaerDayArc</a> </p>
