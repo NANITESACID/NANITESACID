@@ -15,3 +15,4 @@
 <p align="center"> <img src="https://file.garden/Zdo7L-gxzVCR--Zn/ishyqu.png" width="300"></p>
 
 <p align="center"> <a href="https://toyhou.se/RemaerDayArc">art by RemaerDayArc</a> </p>
+<p align="center"> oh yeah whisper me if u want a toyhouse invite code i have too many i need em gooooone i dont bite </p>
